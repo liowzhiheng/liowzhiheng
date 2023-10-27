@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **liowzhiheng@gmail.com**
 
-- ⚡ Fun fact **I think I am funny haha**
+- ⚡ Fun fact **ermmmmm ok**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
